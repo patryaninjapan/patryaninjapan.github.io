@@ -1,7 +1,7 @@
 Patrick Ryan Apps
 APPS 
 PRIVACY POLICY
-SUPPORT
+SUPPORT FOR SKY TENNIS APP
 
 Privacy Policy
 
